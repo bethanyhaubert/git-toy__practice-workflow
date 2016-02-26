@@ -1,1 +1,1 @@
-David Bowie
+David Bowie - January 8, 1947
