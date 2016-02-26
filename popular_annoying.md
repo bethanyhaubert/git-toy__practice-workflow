@@ -1,0 +1,1 @@
+bad music & famous people who aren't talented
